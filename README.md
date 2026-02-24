@@ -15,3 +15,6 @@ https://tingwu.aliyun.com/doc/transcripts/r28pn7yey3kwn5mz?sl=1#
 《【EPCDIY】独家解密火绒误杀win10系统文件背后的真相》
 
 https://tingwu.aliyun.com/doc/transcripts/2erk9xodmk8o9ml8?sl=1#
+
+顺便扔一张流萤的图片进来（位置：匹诺康尼-筑梦边境-顶楼）
+<img width="2560" height="1440" alt="ssl" src="https://github.com/user-attachments/assets/519ef074-dd54-4aac-b00e-4c98dcca36ca" />
