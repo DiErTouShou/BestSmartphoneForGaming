@@ -4,7 +4,7 @@
 
 https://tingwu.aliyun.com/doc/transcripts/dej8nbpd28br9pog?sl=1# 
 
-https://drive.google.com/file/d/1YuYJvHZvVMgkN-2W8Q3jnYI7Bi9vMKpq/view
+https://drive.google.com/file/d/1YuYJvHZvVMgkN-2W8Q3jnYI7Bi9vMKpq
 
 《【影视飓风】 清晰度不如4年前！视频变糊是你的错觉吗？》
 
