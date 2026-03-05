@@ -10,7 +10,7 @@ https://drive.google.com/file/d/1YuYJvHZvVMgkN-2W8Q3jnYI7Bi9vMKpq/view
 
 https://tingwu.aliyun.com/doc/transcripts/3vl8qg67kd5bnpr2?sl=1# 
 
-https://www.icloud.com/iclouddrive/00f3DoAZ9zK3yOeHObQL4P6rg#%E3%80%90%E5%BD%B1%E8%A7%86%E9%A3%93%E9%A3%8E%E3%80%91%E6%B8%85%E6%99%B0%E5%BA%A6%E4%B8%8D%E5%A6%824%E5%B9%B4%E5%89%8D%EF%BC%81%E8%A7%86%E9%A2%91%E5%8F%98%E7%B3%8A%E6%98%AF%E4%BD%A0%E7%9A%84%E9%94%99%E8%A7%89%E5%90%97%EF%BC%9F
+https://www.icloud.com/iclouddrive/00f3DoAZ9zK3yOeHObQL4P6rg
 
 《【Z极客】2025 年的鲁大师电脑版，究竟有多流氓？》
 
